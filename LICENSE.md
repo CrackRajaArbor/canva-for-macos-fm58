@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Canva for macOS plugin with Canva for macOS updated Plugin - export to SVG and color correction. Featuring export to SVG and color correction, it's the best
 
 
 
